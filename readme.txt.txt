@@ -1,0 +1,1 @@
+Ga makan ga diingetin ayang.
